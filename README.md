@@ -7,9 +7,11 @@
 
 - 👨‍💻 All of my projects are available at [https://github.com/imtiyazMohammed](https://github.com/imtiyazMohammed)
 
-- 💬 Ask me about **React, Competitive Programming**
+- 💬 Ask me about **React.JS, Web Development & Competitive Programming**
 
 - 📫 How to reach me **imtiyazmohammed2312@gmail.com**
+
+- My Resume [https://drive.google.com/file/d/12fie7CBv4dRAP7KgUsEfcwx5EkRUii8w/view?usp=sharing](https://drive.google.com/file/d/12fie7CBv4dRAP7KgUsEfcwx5EkRUii8w/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
