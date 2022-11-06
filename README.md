@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **imtiyazmohammed2312@gmail.com**
 
-- My Resume [https://drive.google.com/file/d/12fie7CBv4dRAP7KgUsEfcwx5EkRUii8w/view?usp=sharing](https://drive.google.com/file/d/12fie7CBv4dRAP7KgUsEfcwx5EkRUii8w/view?usp=sharing)
+- 📃 My Resume [https://drive.google.com/file/d/12fie7CBv4dRAP7KgUsEfcwx5EkRUii8w/view?usp=sharing](https://drive.google.com/file/d/12fie7CBv4dRAP7KgUsEfcwx5EkRUii8w/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
